@@ -5,7 +5,7 @@ Students will learn and practice numbers 1-10 and understand the basic concepts 
 
 ### Materials Needed:
 - Number flashcards (1-10).
-- Bingo cards with numbers 1-10.
+- Bingo cards with numbers 1-10, st, nd, rd, th.
 - Worksheets for singular and plural practice.
 
 #### Warm-Up (5 minutes)
