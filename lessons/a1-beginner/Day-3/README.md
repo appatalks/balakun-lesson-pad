@@ -1,4 +1,4 @@
-## Day 3 Lesson Plan: Numbers 1-10 and Singular & Plural Nouns
+## Day 3 Lesson Plan: Numbers 1-10(s) and Singular & Plural Nouns
 
 ### Lesson Objective:
 Students will learn and practice numbers 1-10 and understand the basic concepts of singular and plural nouns to enhance their ability to count and describe quantities.
