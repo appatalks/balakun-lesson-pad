@@ -22,6 +22,7 @@ Students will learn and practice numbers 1-10 and understand the basic concepts 
 #### Guided Practice (15 minutes)
 - **Counting Objects Using Digital Tools:**
   - Use a digital whiteboard to display images of objects. Have the student count them and write the number on the whiteboard.
+  - Fun with Bingo Cards - Also learning "ROW" and "COLUMN" too! 
   - Correct the grammar in real-time and discuss singular versus plural forms.
 
 #### Interactive Activity (15 minutes)
