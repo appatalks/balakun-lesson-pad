@@ -29,13 +29,8 @@ Students will practice English language skills by teaching the teacher about Ukr
   - The teacher, playing the role of a tourist or a local buyer, engages in transactions using the phrases and currency terms learned.
   - Switch roles if feasible to give the student practice in both positions.
 
-### Independent Practice (10 minutes):
-- **Writing Exercise:** The student writes out a simple dialogue depicting a market transaction in Ukraine, including how to make a payment and how to give and receive change.
 
 ### Closing (5 minutes):
 - **Discussion and Feedback:** Discuss the student’s comfort level with using English to explain and transact in Ukrainian currency. Reflect on the accuracy of language used in the dialogues.
 - **Homework Assignment:** Students prepare a short guide in English about visiting Ukraine, focusing on money tips, such as exchanging money, popular payment methods, and tipping etiquette.
 
-### Assessment:
-- Observe the student’s ability to correctly use English number vocabulary and transaction phrases.
-- Evaluate the written dialogues for clarity, use of vocabulary, and grammatical accuracy.
