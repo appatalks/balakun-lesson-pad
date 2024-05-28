@@ -25,11 +25,6 @@ Students will learn the days of the week and adverbs of frequency, and how to us
   - Students plan a weekly schedule for a hypothetical student using days of the week and adverbs of frequency.
   - Discuss as a group to compare how often activities are scheduled (e.g., "He goes to the gym twice a week.").
 
-
-### Independent Practice (10 minutes):
-- **Worksheet:**
-  - Complete a worksheet that requires students to write sentences about their own or a friend's weekly routines using days of the week and adverbs of frequency correctly.
-
 ### Closing (5 minutes):
 - **Review and Reflect:**
   - Review key points about the placement of adverbs of frequency.
