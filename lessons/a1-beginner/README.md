@@ -33,6 +33,12 @@
 - **Activities:** Schedule planning exercise, frequency adverbs game.
 - **Grammar:** Sentence structure with adverbs of frequency.
 
+### 🎉 End of 3 Week Review 🎉
+#### Review Day / Make-up day
+- Adding special Day for make-up, and already learned material for review.
+
+----
+
 ### Week 4: Telling Time
 #### Day 7:
 - **Topic:** Telling the time
