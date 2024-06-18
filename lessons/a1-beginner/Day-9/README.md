@@ -19,7 +19,7 @@ Students will learn vocabulary related to family members and practice using poss
   - Provide examples: "This is my mother. Her name is Anna."
 
 - **Role-Play: Introducing Family:**
-  - In pairs, students take turns introducing their family members to each other using the family trees they created. 
+  - In pairs, students take turns introducing their family members.
   - Example script: "This is my father, John. He is my mother's husband."
 
 ### Homework:
