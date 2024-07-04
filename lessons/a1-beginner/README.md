@@ -71,6 +71,7 @@
 - **Topic:** Shapes and sizes
 - **Activities:** Description games, group discussions on items in the classroom.
 - **Grammar:** Comparatives (bigger, smaller, taller, shorter).
+- BONUS: ```4th of July - Cultural Exchange``` 
 
 ### Week 7: Food and Drinks
 #### Day 13:
