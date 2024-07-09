@@ -7,14 +7,15 @@ Fill in the blanks with "a," "an," or "some" to correctly complete the sentences
 
 1. I would like ___ apple.
 2. Can I have ___ orange juice?
-3. She wants ___ egg for breakfast.
-4. He drinks ___ milk every day.
-5. They need ___ bananas for the recipe.
-6. We are eating ___ salad for lunch.
-7. She bought ___ watermelon at the store.
-8. Can you give me ___ advice on making pasta?
-9. I saw ___ interesting recipe in the cookbook.
-10. We should buy ___ bread on our way home.
+3. Can I have ___ glass of orange juice?
+4. She wants ___ egg for breakfast.
+5. He drinks ___ milk every day.
+6. They need ___ bananas for the recipe.
+7. We are eating ___ salad for lunch.
+8. She bought ___ watermelon at the store.
+9. Can you give me ___ advice on making pasta?
+10. I saw ___ interesting recipe in the cookbook.
+11. We should buy ___ bread on our way home.
 
 ### Bonus Questions:
 - Why do we use "an" instead of "a" before "orange juice"?
